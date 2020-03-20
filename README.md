@@ -10,3 +10,16 @@
 砥砺前行，不要一次次的吹响前进的号角，然后每次都倒在离出发不远的地方。Never Give Up !!!!
 
 CSDN博客：zouchengzhi1021
+
+Originally, I wanted to set up a personal blog. After a series of honey operations, I found that the process of setting up a blog was not simple, far less than those big guys... Since I bought a domain name, I had to make something to enrich the following. So he began to operate without brains.
+
+One day, I was able to brush tiktok on such a video.
+What to do now can become an elite figure in five years; the quality of a current situation is usually determined by his choice five years ago. If you want to be in good shape in five years, you have to start preparing from now on.
+(1) Writing a summary diary every day can improve people's ability of thinking and reflection, as well as their ability of expression and statement.
+(2) Learn a skill carefully and make it your ability. No matter what kind of skill, five years is enough to become a god level figure in this field. When you become such a figure, you will not worry about no income, and you will not have to envy others.
+(3) Try to read a book carefully every month, so that you won't get stage fright anywhere, can chat with everyone and chat well, and everyone will praise your temperament in silence.
+(4) Save a sum of money every month. 90% of things in your life can be solved by money. When you form the habit of saving a sum of money every month, the money will change your destiny in many times.
+
+Forge ahead, don't blow the horn of advance again and again, and then fall in the place not far away from the start every time. Never Give Up !!!!
+
+CSDN blog: zouchengzhi1021
